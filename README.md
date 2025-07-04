@@ -20,7 +20,7 @@ Video de la entrega 2: [Ver en YouTube](https://www.youtube.com/watch?v=AdaehTN6
 
 ## Entrega 3 - Final
 
-Video de la entrega final: [Ver en YouTube](https://www.youtube.com/watch?v=AdaehTN6pwQ)
+Video de la entrega final: [Ver en YouTube](https://youtu.be/4OS5qhOgDBU)
 
 **Nombre:** Edwin Alexander García Chavarría  
 **Cédula:** 1017217913  
